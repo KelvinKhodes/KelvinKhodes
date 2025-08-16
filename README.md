@@ -7,7 +7,7 @@
 
 <a href="https://discord.com/users/1005314350715777116"><img align="right" src="https://lanyard.cnrad.dev/api/1005314350715777116"/></a>
 
-Heyoo, You can call me *Kelvin, a learner from **Batam, Indonesia*. Feel free to contact me, i love to make connection with cool peoples :3
+Heyoo, You can call me Kelvin, a learner from *Batam, Indonesia*. Feel free to contact me, i love to make connection with cool peoples :3
 - 🔭 I’m currently learning and 'll always be learning.
 - 💬 Don't ask me, i don't even know.
 - 📫 Here it is: [kelvinkho050@gmail.com](mailto:kelvinkho050@gmail.com).
